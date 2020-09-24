@@ -1,4 +1,4 @@
-# Claudiu-George Popovici 
+# 🤙
 
 ![alt text](https://i.ibb.co/FKr4Xjk/IMG-20200223-125137-1.jpg) 
 
